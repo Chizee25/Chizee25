@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Chizee25
 - 👀 I’m interested in virtual assistance and human resource management
-- 🌱 I’m currently learning the ALX virtual assitant program and associate membership of Chartered Institute of Personnel Management Certification 
-- 💞️ I’m looking to collaborate on administrative and human resource.
+- 🌱 I’m currently on the journey of becoming a virtual assistant and human resource personnel. I am participating in the ALX virtual assitant program and taking exams to get my associate membership certification from the  Chartered Institute of Personnel Management.
+- 💞️ I’m looking to collaborate on administration and human resource management.
 - 📫 How to reach me www.linkedin.com/in/zoe-peterson1
 
 - 😄 Pronouns: Her, She
